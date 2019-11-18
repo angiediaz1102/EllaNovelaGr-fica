@@ -1,1 +1,1 @@
-# EllaNovelaGráfica
+# Novela Gráfica: Ella
