@@ -1,1 +1,1 @@
-# EllaNovelaGr-fica
+# EllaNovelaGráfica
